@@ -4,4 +4,4 @@
 '!!!!!!!!!!!! Use de forma correta perante a lei! Por favor !!!!!!!!!!!!!
 
 Cliente V2.9.0.0.
-[https://www.upload.ee/files/19488269/Cliente.zip.html](https://gofile.io/d/npSkKI)
+https://gofile.io/d/npSkKI
